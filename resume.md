@@ -4,3 +4,4 @@
 
 ## Education
 - BSc. Petroleum Engineering, Colorado School of mines (2026)
+- Associates science, Trinidad State (2023)
