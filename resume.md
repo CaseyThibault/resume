@@ -5,3 +5,21 @@
 ## Education
 - BSc. Petroleum Engineering, Colorado School of mines (2026)
 - Associates science, Trinidad State (2023)
+
+## Experince
+- Baseball
+    - Served as team captain on varsity at Trinidad State College for 2 consecutive seasons.
+    - Committed minimum 35 hour weekly to perfecting my athletic performance while being a full-time student. 
+    - Developed leaderships, communication, and time management skills.
+- Ranch Hand, Fountain, CO
+    - Used harrows and fertilizers to apply, pesticides, and fertilizer to crops.
+    - Ran heavy machinery such as New Holland tractors, CAT loaders, CAT lifts, and dumps.
+    - Welding for building foundations.
+    - Driving hay deliveries any were from 50-350 bales. This also includes loading and unloading the bales.
+    - Servicing farm equipment such as balers, hay rakes, and trucks.
+- Property Maintenance, T-Bone Construction, Colorado Springs, CO
+    - Cleaned parking lots for multiple shopping complexes.
+    - Repaired the sidewalks and asphalt
+    - Maintained landscaping.
+    - Enforced loitering guidelines and supported tenets safety.
+
