@@ -22,4 +22,11 @@
     - Repaired the sidewalks and asphalt
     - Maintained landscaping.
     - Enforced loitering guidelines and supported tenets safety.
+## Community Involvement
+    - Assisted with planning Special Olympics.
+    - Participated in Colorado Springs Park and Rec Special Needs Soft ball.
+    - Contributed to Mircle games in Colorado, Georgia, Missouri and Texas.
+    - Durning my time on student council I planned the canned food drive for the local food pantry in Fountian CO.
+    - Worked multiple Bronco game as concessions and stadium clean up.
+    - Voluntarily shoved side walks amongst the city of Trinidad, CO for elders and businesses
 
