@@ -2,7 +2,7 @@
 - Email: cthibault15@gmail.com
 - Location: Golden, CO
 - [Casey Thibault's LinkedIn](https://www.linkedin.com/in/casey-thibault-2a7a95309)
-- 
+  
 ![IMG_3377](https://github.com/user-attachments/assets/75e21cf7-4ab2-4c4c-9862-aff3ffcec260)
 
 ## Education
