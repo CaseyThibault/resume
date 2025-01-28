@@ -2,8 +2,8 @@
 - Email: cthibault15@gmail.com
 - Location: Golden, CO
 - [Casey Thibault's LinkedIn](https://www.linkedin.com/in/casey-thibault-2a7a95309)
-
-![Me](/c/Users/tbone/.awork/classes/GPGN268/resume/IMG_3377.jpg)
+- 
+![IMG_3377](https://github.com/user-attachments/assets/75e21cf7-4ab2-4c4c-9862-aff3ffcec260)
 
 ## Education
 - BSc. Petroleum Engineering, Colorado School of mines (2026)
