@@ -3,7 +3,8 @@
 - Location: Golden, CO
 - [Casey Thibault's LinkedIn](https://www.linkedin.com/in/casey-thibault-2a7a95309)
 
-![Me](/c/Users/tbone/.awork/classes/GPGN268/resume/IMG_3377)
+![Me](/c/Users/tbone/.awork/classes/GPGN268/resume/IMG_3377.jpg)
+
 ## Education
 - BSc. Petroleum Engineering, Colorado School of mines (2026)
 - Associates science, Trinidad State (2023)
